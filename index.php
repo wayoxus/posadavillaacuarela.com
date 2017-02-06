@@ -1,0 +1,1 @@
+<html><head><meta http-equiv="REFRESH" content="0;url=posada/"><title>Posada Villa Acuarela</title></head><body leftmargin="0" topmargin="0" marginwidth="0" marginheight="0"></body></html>
